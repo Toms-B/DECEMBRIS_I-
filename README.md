@@ -1,0 +1,1 @@
+Toms, Neizpildiju 5.uzd, jo nezināju, kā datoram noteikt laiku. Drusku savādāk izpildiju 4.uzd un ne līdz galam 3.uzd, bet pašam liekas, ka gāja labi un sev dotu 7.
